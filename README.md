@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="https://www.petscorner.co.uk/Images/Article/large/pc-ah-article-sa-syrian-hamster.jpg"  />
 
 ###
 
